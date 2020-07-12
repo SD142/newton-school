@@ -1,2 +1,2 @@
-# newton school
+# Newton School
  
